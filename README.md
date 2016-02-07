@@ -13,5 +13,3 @@ App screenshots:
 ![](https://lh6.googleusercontent.com/whl3vpQpMZiBhdiIBtYjFfMwkcSBUt9QusrYMHLCy4bFhmXsEo5bWpMjdORd7sGByry9Fg=w1342-h523)
 <br/>
 ![](https://lh5.googleusercontent.com/07Qw6RD2ukpoui_dQNYoFniUfWpEGu6ZksTQVV83HXZPNDhKf5gPe1fr_sSOUiISdeE1CQ=w1342-h523)
-
-https://lh3.googleusercontent.com/C22hnLBMHQljilSNxBSsIdTJRMejcSxnS8LyHi_2feQGAHMpL65xYwUjeCvWYDP3tC4RHw=w1342-h523
